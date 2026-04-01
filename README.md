@@ -1,4 +1,6 @@
-💫 About Me:
+💫 About Me
+
+
 I am currently studying in SHUATS.
 How to rech me : Instagram @himashusoniy Linkedin @himanshusoniy
 Pronounce: He/Him
